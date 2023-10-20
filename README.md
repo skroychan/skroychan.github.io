@@ -1,1 +1,1 @@
-# skroychan.github.io
+https://skroy.moe/
